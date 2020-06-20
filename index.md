@@ -9,3 +9,5 @@ He is described as "a being who became immortal after an accident with a few rub
 * comitted to personal quest to insult everyone in the entire universe
 * inventive in his methods to achieve this goal
 * takes care in his personal appearance (e.g. uses expensive soap for skin care)
+
+> "I've done you before, haven't I?"
