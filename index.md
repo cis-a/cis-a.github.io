@@ -11,4 +11,5 @@ He is described as "a being who became immortal after an accident with a few rub
 * takes care in his personal appearance (e.g. uses expensive soap for skin care)
 
 Famous Wowbaggger quote:
-> "I've done you before, haven't I?"
+
+> I've done you before, haven't I?
