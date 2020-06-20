@@ -5,7 +5,11 @@ Wowbagger 'the Infinitely Prolonged', as he is introduced, is an alien intellige
 He is described as "a being who became immortal after an accident with a few rubber bands, a liquid lunch, and a particle accelerator. After a period of total boredom, especially on Sunday afternoons, he decided to insult everyone in the entire universe in alphabetical order."
 
 ## Wowbagger's character traits
-* easily bored due to long lifespan
+* easily bored due to his long lifespan
 * comitted to personal quest to insult everyone in the entire universe
 * inventive in his methods to achieve this goal
 * takes care in his personal appearance (e.g. uses expensive soap for skin care)
+
+Famous Wowbaggger quote:
+
+> I've done you before, haven't I?
