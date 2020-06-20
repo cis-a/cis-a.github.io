@@ -13,3 +13,5 @@ He is described as "a being who became immortal after an accident with a few rub
 Famous Wowbaggger quote:
 
 > I've done you before, haven't I?
+
+<img src="https://vignette.wikia.nocookie.net/hitchhikers/images/1/11/Wowbagger.jpg/revision/latest/top-crop/width/720/height/900?cb=20110601024054"/>
